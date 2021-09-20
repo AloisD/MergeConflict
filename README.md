@@ -1,4 +1,4 @@
-Make his fight on the hill in the early day
+Take his fights on the hill@ IN the early day
 Constant chill deep inside
 Shouting gun, on they run through the endless grey
 On they fight, for they're right, yes, but who's to say?
